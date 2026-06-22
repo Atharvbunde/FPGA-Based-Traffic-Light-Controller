@@ -335,9 +335,9 @@ After completing this project, you will be able to:
 
 ## 👤 Author
 
-**K.V.Seshu Babu**  
-GitHub: [@GIT PROFILE](https://github.com/Seshu-Konijeti) 
-Linkedin:[@Linkedin profile](https://www.linkedin.com/in/seshu-babu-konijeti-74968b2b9?utm_source=share_via&utm_content=profile&utm_medium=member_android) 
+**A.V.Bunde**  
+
+Linkedin:[@Linkedin profile](https://www.linkedin.com/in/atharv-bunde-602361400/) 
 
 ---
 
